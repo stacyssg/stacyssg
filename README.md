@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science
 - 🌱 I’m currently learning about what I want to specialize in
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me stacysaucedow@gmai.com
+- 📫 How to reach me stacysaucedow@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm in my sophmore year and I like Genshin.
 
